@@ -54,6 +54,6 @@ May you carry that love into every place you go, offering it freely to those who
 
 And may you discover, in the quiet unfolding of your ordinary days, that the sacred has been present all along.
 
-Go in peace. Walk gently. Love freely.**
+Go in peace. Walk gently. Love freely.
 
 And may the grace of God accompany you, always.
